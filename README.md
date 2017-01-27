@@ -1,0 +1,1 @@
+# SM-Legendary-RNG-Tool
